@@ -1,0 +1,2 @@
+# Np
+Orang kata diam
